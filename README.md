@@ -17,7 +17,7 @@ We help businesses of all sizes to build their online presence, grow their busin
 Connect with Smart Network on social media for the latest offers, promos, job vacancies, and much more:
 
 ► Subscribe: https://www.youtube.com/channel/UCIxyh3MTsRNszXpEfkQ6c-Q
-► Instagram: https://www.instagram.com/wscubetechi...
+► Instagram: https://www.instagram.com/smartnetwork72/
 
 Email for any Enquiry -smartnetwork74@gmail.com
 
